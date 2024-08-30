@@ -1,1 +1,13 @@
-# likes
+![image](https://github.com/user-attachments/assets/675f01aa-34dc-49b8-a408-b3c9afc3ed23)
+
+# likes ᗢ₊˚✧🌈 ﾟ.
+
+
+🦎 𝙛𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚𝙨 `` ~ ୨୧ ♡ ·
+
+- drink: lemonade
+- food: mcdonalds, cadbury chocolate
+- movies: jurassic series, oceans 8, any sandra bullock movie
+- shows: ratched, heartbreak high, young sheldon
+- bands: abba, fleetwood mac
+- singers: kylie minogue (!!), cyndi lauper, madonna, lady gaga
