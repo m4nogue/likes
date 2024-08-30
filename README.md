@@ -10,8 +10,9 @@
 - movies: jurassic series, oceans 8, any sandra bullock movie
 - shows: ratched, heartbreak high, young sheldon
 - bands: abba, fleetwood mac
-- *singers: kylie minogue (!!), cyndi lauper, madonna, lady gaga
+- * singers: kylie minogue (!!), cyndi lauper, madonna, lady gaga
 - games: roblox, MLA, minecraft
+- my bsfs!!! (franki & ella)
 
 
   *  [my full music taste](https://stats.fm/keren) - stats.fm
